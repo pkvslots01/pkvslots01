@@ -1,3 +1,6 @@
+<a href="[https://daftarpkv2023.page.link/ekoqq](https://webpes.page.link/bijiqq)"><img src="[https://res.cloudinary.com/judionline855/image/upload/v1656733275/pkvgames/ekorQQ_wl0l2e.gif](https://webpes.page.link/bijiqq)" width="512" height="63"></a>
+
+
 <h1 itemprop="headline">Pkv games : situs andalan para pemenang</h1>
 			<h4 itemprop="description">Pesqq adalah website pkv games resmi yang paling gampang untuk anda akses bisa melalui situs pkv online utama atau link alternatif pes qq.</h4>
 		    <p itemprop="text">Web web yang menyajikan opsi game taruhan judi namun memanglah dikala ini sangat banyak sekali pilihannya. Kalian pula wajib buka kebijakan cari sebagian opsi web yang formal serta terpercaya. Disini kami Pesqq amati web formal di Indonesia yang memanglah dapat dipercaya serta menawarkan bermacam jaminan. Kamu para pemain hendak memperoleh jaminan game yang 100% nyaman serta fair play.</p>
